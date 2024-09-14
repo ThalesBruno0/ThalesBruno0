@@ -1,4 +1,4 @@
-### Olá! Seja bem-vindo(a) ao portfólio do Thales Bruno!
+### Olá! Seja bem-vindo(a) ao meu portfólio!
 
 
 
